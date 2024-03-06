@@ -9,9 +9,9 @@
 
 ### Alunos: Guilherme Vieira, Lucas Melo
 
-Guilherme\
-"Maldito homem que acredita no homem."\ - Anônimo
-"100% Jesus"\ - Neymar
-\
-Lucas\
-"Keep walking" - Johnnie Walker\
+Guilherme Vieira\
+"Maldito homem que acredita no homem." - Anônimo\
+"100% Jesus" - Neymar\
+
+Lucas Melo\
+"Keep walking" - Johnnie Walker
