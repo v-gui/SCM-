@@ -9,7 +9,9 @@
 
 ### Alunos: Guilherme Vieira, Lucas Melo
 
-"Maldito homem que acredita no homem."\
-"100% Jesus"\
-"Keep gambling, winners win!"\
-"Hipoteque sua casa e jogue tudo no blackjack"
+Guilherme\
+"Maldito homem que acredita no homem."\ - Anônimo
+"100% Jesus"\ - Neymar
+\
+Lucas\
+"Keep walking" - Johnnie Walker\
