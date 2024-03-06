@@ -11,7 +11,7 @@
 
 Guilherme Vieira\
 "Maldito homem que acredita no homem." - Anônimo\
-"100% Jesus" - Neymar\
+"100% Jesus" - Neymar
 
 Lucas Melo\
 "Keep walking" - Johnnie Walker
