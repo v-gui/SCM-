@@ -11,7 +11,7 @@
 
 Guilherme Vieira\
 "Maldito homem que acredita no homem." - Anônimo\
-"100% Jesus" - Neymar
+" Gamble all your life savings" - Someone very smart.
 
 Lucas Melo\
 "Keep walking" - Johnnie Walker
